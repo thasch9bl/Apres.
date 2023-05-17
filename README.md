@@ -17,6 +17,10 @@ Linhas, grafismos sempre fizeram parte de suas representações. Atualmente prod
 Arte em vários suportes de acordo com a necessidade e o espaço físico de quem
 Encomenda suas produções.
 Sua Produção Artistística atualmente engloba Obras Produzidas no formato NFT🖖🏻que
-Podem ser apreciadas nas plataformas Opensea.io e Mintable.app✨ </p>
+Podem ser apreciadas nas plataformas Opensea.io e Mintable.app✨
+ 👇🏻👇🏻
+ https://opensea.io/thais8schnabe1
+ https://mintable.app/u/schnabelthais
+</p>
 
 </body>
